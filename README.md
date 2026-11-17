@@ -1,0 +1,1 @@
+# geometriyalyq-detektiv1
